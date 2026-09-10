@@ -4,10 +4,6 @@
   </a>
 </p>
 
-<img width="585" height="41" alt="image" src="https://github.com/user-attachments/assets/868a425f-216f-4d57-bb4c-16c967fc2c40" />
-tysmm @PT-FANtastic-Hall
-
-
 usually seen as!!:
 
 <img width="148" height="212" alt="kalim" src="https://github.com/user-attachments/assets/0f0cbfb9-f185-4211-8b25-880d43d8e2a5" />(kalim)
